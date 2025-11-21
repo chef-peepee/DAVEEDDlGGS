@@ -4,4 +4,4 @@
 <p align="center">
 <a href="https://www.tumblr.com/sillylittlegaymer"><img src="https://i.postimg.cc/Bv7qWQwr/ezgif-3b2082c6b35937ef.png"</a>
 <p align="center">
-<a href="https://swaggot.atabook.org/"><img src="https://i.postimg.cc/Qd2t4qVn/ezgif-1d8446242fad0065.png" />
+<a href="https://swaggot.atabook.org/"><img src="https://i.postimg.cc/Qd2t4qVn/ezgif-1d8446242fad0065.png" /><a href="https://rentry.co/starboy"><img src="https://file.garden/aSATqW7wGDOKPZEO/ezgif-17281309ed338651%20(1).png" />
